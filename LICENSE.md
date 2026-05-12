@@ -1,4 +1,4 @@
-#  
+#  best Workflow for Obsidian for macOS - version history and export to PDF is the best Obsidian for macOS workflow, featuring version history and export to PDF. Safe, efficient, and
 
 
 
